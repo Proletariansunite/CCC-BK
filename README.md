@@ -1,1 +1,1 @@
-#Proletarian Mutual Aid /无产阶级互助
+Proletarian Mutual Aid /无产阶级互助
